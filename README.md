@@ -1,4 +1,4 @@
-Exe link -https://drive.google.com/file/d/11Rx_ZmF4kArW98bEMZDbaYIwRhJRpC1Z/view?usp=sharing
+download Exe link -https://drive.google.com/file/d/11Rx_ZmF4kArW98bEMZDbaYIwRhJRpC1Z/view?usp=sharing
 
 ![image](https://github.com/user-attachments/assets/9f1348a9-7aab-4e74-884b-ded1a45b4b19)
 
